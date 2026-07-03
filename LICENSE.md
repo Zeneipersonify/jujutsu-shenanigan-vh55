@@ -1,4 +1,4 @@
-#  
+#  jujutsu shenanigans instant Script is the best jujutsu shenanigans Script, featuring private server access and silent aim. Safe and powerful for all
 
 
 
